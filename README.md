@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rishithakurr
+- 👀 I’m interested in well basically everything cs has to offer
+- 🌱 I’m currently learning ... front end along with android development
+- 📫 How to reach me :- rishithakur7706@gmail.com
